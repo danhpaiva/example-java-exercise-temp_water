@@ -26,6 +26,8 @@ _As operações de busca e salvamento já passaram da sexta hora desde a ocorrê
 **Texto retirado da CNN** <br>
 **Fonte:** https://www.cnnbrasil.com.br/internacional/temperatura-da-agua-e-crucial-para-resgate-apos-navio-derrubar-ponte-nos-eua/
 
+Ultimo Acesso: 2026/04/07
+
 ## Iremos contratar você
 
 <p align="center">
